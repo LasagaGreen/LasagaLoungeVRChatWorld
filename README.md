@@ -1,1 +1,3 @@
 # LasagaLoungeVRChatWorld
+
+Cool bitches only
